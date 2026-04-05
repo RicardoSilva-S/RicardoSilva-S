@@ -33,5 +33,5 @@
 
 ## 📫 Contato
 
-- LinkedIn: (in/ ricardo-henrique-0a4368335)
+- LinkedIn: (www.linkedin.com/in/ricardo-henrique-0a4368335)
 - Gmail: (ricardohenriquesilva286@gmail.com)
