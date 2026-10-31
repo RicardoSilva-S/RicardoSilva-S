@@ -28,4 +28,5 @@ I'm developing my software engineering skills through academic and personal proj
 
 ### Contact
 
-[LinkedIn](https://www.linkedin.com/in/ricardo-henrique-0a4368335) · [GitHub](https://github.com/RicardoSilva-S)
+📧 [Email](mailto:ricardohenriquesilva286@gmail.com)  
+💼 [LinkedIn](https://www.linkedin.com/in/ricardo-henrique-0a4368335)
